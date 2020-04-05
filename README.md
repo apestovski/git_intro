@@ -1,1 +1,2 @@
-andrei Pestovski
+Andrei Pestovski
+pestovsa@oregonstate.edu
